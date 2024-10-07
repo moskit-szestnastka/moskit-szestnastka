@@ -1,0 +1,3 @@
+- 👋 Cześć, jestem moskit16.
+- 👀 Lubię komputery.
+- 📫 Skontaktuj się ze mną na discord: @moskit16.
